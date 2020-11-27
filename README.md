@@ -1,3 +1,3 @@
 # TVMAX
 
-Free Russian IPTV =)
+Free 589 Russian TV =)
